@@ -4,9 +4,9 @@
 
 1st Edition  Apr 2022Jan 2023 Updated
 
-**Athor:**
+**Author:**
 
-**Dr Liang Han (ACA)**
+**Liang Han**
 
 **Key Guidance**
 
